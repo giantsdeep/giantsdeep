@@ -1,1 +1,1 @@
-where am i im scared
+play outer wilds

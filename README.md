@@ -4,6 +4,6 @@
   
 <p align="center"> i love outer wilds ilove gabbro i love gabbro.
  
-  <p align="center">if you dont feel like reading my sp then tl;dr: w2i, i'm offtab and disconnect half the time, c+h freely, if i ignore you or leave it's because i'm overwhelmed you didn't do anything wrong
+  <p align="center">if you don't feel like reading my sp then tl;dr: w2i, i'm offtab and disconnect half the time, c+h freely, if i ignore you or leave it's because i'm overwhelmed you didn't do anything wrong
   
   <p align="center"><sup>SLAY THE PRINCESS QUOTE IN AN OUTER WILDS THEME WHAT DA HELL IS A POLAR BEAR DOIN IN ARLINGTON TEXAS</sup>

@@ -1,4 +1,4 @@
-<p align="center"> <i>"even the time we spend apart is time spent chasing these moments of reunion. and they’re all the sweeter for the isolation in between, don’t you think?"</i>
+<p align="center"> <i>"why wouldn't i be kind to you? you are the only thing i know that isn't me."</i>
   
 [<img width="1920" height="1040" alt="9318054" src="https://github.com/user-attachments/assets/6be6ac9d-6abe-4d04-a515-11db78a8ab29" />](https://gabbrosisland.straw.page)
   

@@ -4,7 +4,7 @@
   
 <p align="center"> i love outer wilds ilove gabbro i love gabbro.
  
-  <p align="center">if you don't feel like reading my sp then tl;dr: w2i, i'm offtab and disconnect half the time, c+h freely, if i ignore you or leave it's because i'm overwhelmed you didn't do anything wrong
+  <p align="center">if you don't feel like reading my sp then tl;dr: w2i recommended because i'm offtab and disconnect half the time, c+h freely, if i ignore you or leave it's because i'm overwhelmed you didn't do anything wrong
     
  <p align="center"><img width="375" height="154" alt="image" src="https://github.com/user-attachments/assets/09f1a6ad-b538-42ed-96f9-fcfe755cf349" />
 
